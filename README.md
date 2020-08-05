@@ -1,5 +1,5 @@
 
-💬  `It has not been the time yet to give up as long as you still feel it is not the end.`
+`⚡`  **It has not been the time yet to give up as long as you still feel it is not the end.**
 
 <!--
 **fgoll/fgoll** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
