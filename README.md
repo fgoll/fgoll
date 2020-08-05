@@ -1,4 +1,4 @@
-### Hi there 👋
+<img align="left" src='https://github-readme-stats.vercel.app/api?username=fgoll&show_icons=true&icon_color=cbe7fe&text_color=cbe7fe&bg_color=000000&hide_title=true'/>
 
 <!--
 **fgoll/fgoll** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
