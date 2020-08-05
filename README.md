@@ -1,5 +1,9 @@
 
-`⚡`  **It has not been the time yet to give up as long as you still feel it is not the end.**
+`⚡`  *Some of us get dipped in flat, *
+`⚡`  *some in satin, *
+`⚡`  *some in gloss. *
+`⚡`  *But every once in a while you find someone who's iridescent, *
+`⚡`  *and when you do,nothing will ever compare.*
 
 <!--
 **fgoll/fgoll** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
