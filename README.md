@@ -1,11 +1,11 @@
 
-`⚡`  Some of us get dipped in flat,
+`⚡`  some of us get dipped in flat,
 
 `⚡`  some in satin, 
 
-`⚡`  some in gloss. 
+`⚡`  some in gloss, 
 
-`⚡`  But every once in a while you find someone who's iridescent, 
+`⚡`  but every once in a while you find someone who's iridescent, 
 
 `⚡`  and when you do,nothing will ever compare.
 
